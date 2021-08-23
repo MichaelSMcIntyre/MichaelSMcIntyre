@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MichaelSMcIntyre
-- 👀 I’m interested in Communication, Games, Music, cryptocurrency
+- 👀 I’m interested in Communication, Games, Music, Cryptocurrency
 - 🌱 I’m currently learning computer stuff
 - 💞️ I’m looking to collaborate on ..., not sure pretty busy at the moment 
 - 📫 How to reach me msmcintyre20@gmail.com
