@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MichaelSMcIntyre
 - 👀 I’m interested in Communication, Games, Music, cool Projects
 - 🌱 I’m currently learning computer stuff
-- 💞️ I’m looking to collaborate on ..., not sure pretty busy job searching at the moment 
+- 💞️ I’m looking to collaborate on anything related to my interest 
 - 📫 How to reach me msmcintyre20@gmail.com
 
 
